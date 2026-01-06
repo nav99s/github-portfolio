@@ -3,5 +3,3 @@
 I worked here as a Mechanical engineer 
 
 ### Opportunity FoodTech Srl 
-- Description
-- Links
